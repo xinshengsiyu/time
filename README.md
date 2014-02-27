@@ -1,4 +1,4 @@
 time
 ====
 
-time of memery, for my feeling, so that is love
+Time of memory, for my feeling, so that is love.
